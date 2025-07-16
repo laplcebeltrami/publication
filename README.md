@@ -1,1 +1,1 @@
-% Publication of Moo K. Chung
+Publication of Moo K. Chung
